@@ -1,2 +1,2 @@
 # CV
-Curriculum vitae actualizado Paula Ampudia 2doA Matutino
+Curriculum vitae actualizado Andres Caiza 2doA Matutino
